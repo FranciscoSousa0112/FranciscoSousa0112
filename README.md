@@ -32,8 +32,4 @@ I'm 21 years old, born and raised in Porto, Portugal. Currently, I am studying a
 - Email: xicosouza2003@gmail.com
 
 ---
-## 🎉 Fun Facts
 
-- Currently Learning: 
-- Currently Reading : 
-- Favorite Quote: 
